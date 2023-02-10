@@ -1,2 +1,4 @@
 # CV-
-![image](https://user-images.githubusercontent.com/87368494/216839884-2a5debf3-ed19-4e7b-a8c5-a860e8bda6dc.png)
+
+![image](https://user-images.githubusercontent.com/87368494/218142777-043c6fc7-4e8f-439c-a88e-eb959a499fdb.png)
+![image](https://user-images.githubusercontent.com/87368494/218142828-1ad3041e-e343-4399-b345-926642fe1466.png)
